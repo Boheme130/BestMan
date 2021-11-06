@@ -1,5 +1,6 @@
 ## Best Man
-[回到主页](https://boheme130.github.io/Fiction.git.io/)
+[回到主页](https://boheme130.github.io/Fiction.git.io/) <br>
+[回到上一页](https://boheme130.github.io/LilyMorton.git.io/)
 
 ![avatar](https://ctl.s6img.com/society6/img/qVCzqLsLFLhU6akvA1fF7fb3gwc/w_1500/prints/~artwork/s6-0018/a/6499479_13574074/~~/gay-marriage-ge5-prints.jpg)
 <br>
